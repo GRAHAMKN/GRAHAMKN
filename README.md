@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Graham Karuga Njoroge
+- get through grahamkaruganjoroge@gmail.com
